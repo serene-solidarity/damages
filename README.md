@@ -1,2 +1,7 @@
-# damages
+# Damages
 An account of losses and damages incured due to hapless public security agencies relying on private contractors
+
+## Crimes committed against me and Ontarians
+In mid Nov 2019 I provided my report to the WRPS to register a cybercrime. They in turn started harassing me and did everything to illegally paint me as a person with paranoia to coverup their violations instead of actually addressing the cybercrimes that impacted all Ontarians. These cybercrimes with digital viruses had the signature design of a long gestation period and had the typical m.o. of steps carried out by the CIA + NSA against Afghanistan, Syria, Iraq and Iran which, typically is followed with a biological virus attack. Groups and agencies were directing the very same mode of attacks against US, Canada, UK and EU taken straight out of the war doctrines of western military forces. 
+
+The knowledge about covid19 pandemic that was made public to Canadians in Feb-March 2020 was already available to analysts like me (without a shadow of doubt) in Sept-Oct 2019. By Dec 2019 many of my sources and contacts looking into issues steaming from unethical military activities by US coalition forces in South China Sea had suffered cybercrimes against them with massive data breaches against our computer and communication networks. These activities threatened our lives and that of our families amidst which the local police authorities not only dismissed our safety concerns but actively erased evidence of their misdeeds, violations, corruptions and malpractices! 
